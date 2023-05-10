@@ -6,7 +6,8 @@ What else?
 **Banana**!!
 *Oranges!!*
 
-And as the say
+And as they say
 > many more!
+
 that's all
 
